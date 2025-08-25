@@ -14,8 +14,7 @@ I’m **Daffa** – just a dude vibin’ with code, design n’ gaming🚀
 - **Video Editing**: CapCut ✂️, Premiere Pro 🎬, After Effects ⚡ (I cut, drop beats, make vibes ong fr)  
 
 ### 🤝 Collab? Bet!  
-Open for collabs in dev, design, or editing.  
-Slide in with ur idea, we gon’ cook somethin’ fire together, no cap 🔥.  
+Open for collabs in dev, design, or editing.   
 
 
 <!---
