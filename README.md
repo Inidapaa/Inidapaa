@@ -1,9 +1,9 @@
 # Yo, what’s good fam?
 
-I’m **Daffa** – just a dude vibin’ with code, design n gaming🚀  
+I’m **Daffa** – just a dude vibin’ with code, design n gaming
 
 ### Hobbies  
-- Gaming (Valorant grinder, racing sims like Assetto Corsa — full send, no cap 🏎️💨)  
+- Gaming (Valorant grinder, racing sims like Assetto Corsa)  
 - Sports (kickin’ ball whenever I can, ong)  
 - Motorsport (huge fan of F1, WEC, GT — speed is the vibe, fr)  
 
